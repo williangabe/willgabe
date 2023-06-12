@@ -1,4 +1,4 @@
-### Olá! eu sou o Will! ou.. Uiu🤨😁👍
+### Olá! eu sou o Will!🤨😁👍
 
 - 🌱 Estudando FrontEnd
 - 📫 Fale comigo: williangabriellrv@gmail.com
